@@ -1,6 +1,6 @@
-### Frumples
+### Frumple
 
-*n.* Abbreviation of "Frumplings" (Fried Dumplings)
+*n.* Abbreviation of "Frumpling" (Fried Dumpling)
 
 #### Etymology
 

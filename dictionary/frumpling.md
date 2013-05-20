@@ -1,6 +1,6 @@
-### Frumplings
+### Frumpling
 
-*n.* Fried Dumplings
+*n.* Fried Dumpling
 
 #### Etymology
 

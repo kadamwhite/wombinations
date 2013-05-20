@@ -1,6 +1,6 @@
 ### Hugs
 
-*n.* Hard Drugs
+*n. pl.* Hard Drugs
 
 #### Etymology
 

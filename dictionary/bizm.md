@@ -1,6 +1,6 @@
-### Bizms
+### Bizm
 
-*n.* Abbreviation of "Boazisms"
+*n.* Abbreviation of "Boazism"
 
 #### Etymology
 
